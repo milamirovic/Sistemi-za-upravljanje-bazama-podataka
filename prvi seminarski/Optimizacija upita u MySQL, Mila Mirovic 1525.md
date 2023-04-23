@@ -1,1 +1,1 @@
-Link do prezentacije: https://docs.google.com/presentation/d/1fSx3u1YEXP9n2iyjeDa9hUqrHxtwaf8mSxFBH81oVNY/edit?usp=sharing
+Link do prezentacije: [https://docs.google.com/presentation/d/1fSx3u1YEXP9n2iyjeDa9hUqrHxtwaf8mSxFBH81oVNY/edit?usp=sharing](https://docs.google.com/presentation/d/1uPKg1AEycjDfEWIlC6_YK8zkGw0Q1J5y1usqMMRzoUQ/edit?usp=sharing)
